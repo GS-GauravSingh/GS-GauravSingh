@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @GS-GauravSingh
+- 👋 Hi, I’m GauravSingh-(@GS-Gaurav Singh)
 - 👀 I’m interested in Programming
 - 🌱 I’m currently learning something cool!
 
